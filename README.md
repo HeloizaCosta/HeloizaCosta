@@ -10,4 +10,4 @@
 </div>
 
 ## <br> 
-**Como uma entusiatas de Ux/Ui durante minha formação em Analise e Desenvolvimento de Sistemas eu exploro a prototipação de sites e app**
+**Como uma entusiatas de Ux/Ui durante minha formação em Analise e Desenvolvimento de Sistemas eu exploro a prototipação de sites e app :computer: :iphone:!**
